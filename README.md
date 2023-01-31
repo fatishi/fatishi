@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I'm Fatima!
 
 - 🔭 I’m currently looking for a job opportunity as an entry - level Data Analyst
 - 🌱 I’m currently improving my Emotional Intelligence (EQ), Arabic, and Programming Skills
